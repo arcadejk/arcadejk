@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning chinese and I will probably learn Java in the future.
 - 💞️ I’m looking to collaborate on all interesting projects.
 - 📫 You can reach me on WhatsApp : +55 31 9 95964621
-- 😄 Pronouns: He / she
+- 😄 Pronouns: He / Him
 - ⚡ Fun fact: I can speak 6 languages. So, feel free to use the one you are more confortable with.
